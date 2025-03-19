@@ -2,5 +2,5 @@
 
  - Estudiante de Ingenieria en Sistemas
 
- <img src="blob:https://web.whatsapp.com/d504d7ca-eb03-42ab-ae8d-6750ad8ff6f1"><br><br>
+ <img src="WhatsApp Image 2025-03-19 at 19.00.56.jpeg"><br><br>
  
